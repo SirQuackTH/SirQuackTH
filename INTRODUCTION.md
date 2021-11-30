@@ -3,5 +3,5 @@
 - I’m currently learning C#
 
 - How to reach out to me
-My discord tag: SirQuackTH#2995
-My discord server: https://discord.com/invite/vcdGn52
+\nMy discord tag: SirQuackTH#2995
+\nMy discord server: https://discord.com/invite/vcdGn52
